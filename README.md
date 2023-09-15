@@ -1,16 +1,18 @@
-### Hi there 👋
+homi gosta de muié carpinteira
+santista
+sao paulino
+palmiraense
+gremista
+tavoremse
+gosta de pescar jacare no final de semana
+jogador profissional de truco e sinuca
+sao palmo
+barsemlona
+![.](https://media.tenor.com/PpBhm-upY1EAAAAC/santos.gif)
 
-<!--
-**zequinha69/zequinha69** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
